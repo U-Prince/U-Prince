@@ -1,7 +1,5 @@
 ### Hi there, I'm U Prince 👋
 
-## I'm a Developer!
-
 - 🔭 I’m currently working at Falabella India!
 - 🌱 I’m currently learning everything 🤣
 - ⚡ Fun fact: I love football
