@@ -1,6 +1,6 @@
 ### Hi there, I'm U Prince 👋
 
-- 🔭 I’m working at Falabella India!
+- 🔭 
 - 🌱 I’m currently learning everything 🤣
 - ⚡ Fun fact: I love football
 
